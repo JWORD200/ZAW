@@ -1,1 +1,1 @@
-for school
+For school
